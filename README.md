@@ -4,6 +4,10 @@ Perkenalkan nama saya **Ahmad Irvan Maulana**.<br>
 
 Saya seorang **Mahasiswa Informatika** di Politeknik Negeri Semarang.<br>
 
+diupdate desember : 
+
+sekarang dah jadi programmmer alhamdulillah
+
 Saya memiliki minat yang tinggi terhadap software developer terutama dalam bidang website.<br>
 
 
