@@ -4,7 +4,7 @@ Perkenalkan nama saya **Ahmad Irvan Maulana**.<br>
 
 Saya seorang **Mahasiswa Informatika** di Politeknik Negeri Semarang.<br>
 
-diupdate desember : 
+diupdate desember 2024 : 
 
 sekarang dah jadi programmmer alhamdulillah
 
